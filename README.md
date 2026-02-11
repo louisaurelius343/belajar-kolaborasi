@@ -1,4 +1,2 @@
 # belajar-kolaborasi
-halooooo
-woiiiii
-cihuyyyy
+cugggg
